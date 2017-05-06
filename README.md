@@ -1,1 +1,0 @@
-# ahmetmuhammetkocabiyik.github.io
